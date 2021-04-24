@@ -49,6 +49,9 @@ dan berbagai widget link. walaupun widget link disini masih belum aktif
 
 TUGAS & PERTANYAAN
 
+![L11](https://user-images.githubusercontent.com/81818405/115946252-28475c80-a4ea-11eb-822f-a6165f7c36e9.PNG)
+
+
 ![L10](https://user-images.githubusercontent.com/81818405/115946207-e4ecee00-a4e9-11eb-83c7-070e74895975.PNG)
 
 

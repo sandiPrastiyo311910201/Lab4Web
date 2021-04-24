@@ -44,3 +44,11 @@ dan berbagai widget link. walaupun widget link disini masih belum aktif
 ![L4 8](https://user-images.githubusercontent.com/81818405/115945393-cedd2e80-a4e5-11eb-8bbe-30ca2e4516a0.PNG)
 
 # Langkah 9
+
+
+
+TUGAS & PERTANYAAN
+
+![L10](https://user-images.githubusercontent.com/81818405/115946207-e4ecee00-a4e9-11eb-83c7-070e74895975.PNG)
+
+
